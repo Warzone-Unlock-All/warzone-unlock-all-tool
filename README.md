@@ -59,15 +59,15 @@ Experience the full potential of Call of Duty: Warzone with our comprehensive un
 ### 🖼️ Preview
 
 **1. Comprehensive Unlock Interface**  
-![Unlock Interface](https://i.ytimg.com/vi/KXe1NBhM2DQ/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBcbyx6BFQQ56-0j4dlaQ2E_hrWzQ)  
+![Unlock Interface](https://i.ytimg.com/vi/5OT-FtvOTd4/maxresdefault.jpg)  
 *User-friendly interface showcasing all unlock options.*
 
 **2. Operator Selection Screen**  
-![Operator Selection](https://i.ytimg.com/vi/BMrbmmcFYw8/maxresdefault.jpg)  
+![Operator Selection](https://payhip.com/cdn-cgi/image/format=auto,width=1500/https://pe56d.s3.amazonaws.com/o_1ib2gtlcogpgidj1fjjf7eob210.jpg)  
 *Choose from a wide array of operators and skins.*
 
 **3. Weapon and Blueprint Access**  
-![Weapon Access](https://cdn.shopify.com/s/files/1/0560/4789/4710/t/20/assets/escape_from_tarkov_best_cpu-rya0yx.True?v=1707821478)  
+![Weapon Access](https://i.ytimg.com/vi/OgJ3PUyK0NE/maxresdefault.jpg)  
 *Instant access to all weapons and their blueprints.*
 
 ---
